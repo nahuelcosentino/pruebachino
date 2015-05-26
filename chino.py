@@ -1,1 +1,3 @@
-codigo de python lalal mukeño
+
+de python
+ lalal mukeño la concha de tu mama entangada
